@@ -1,5 +1,6 @@
 ## Study Together ! :fireworks:
-Owned by: Jenieva Ibarreta
+***Owned by: Jenieva Ibarreta***
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5m4QcGCBoC0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+[![study with me - real time!](https://user-images.githubusercontent.com/99858112/155104637-a505110d-05b2-482f-9890-7889b23070c8.png)](https://youtu.be/5m4QcGCBoC0)
 
+[![Watch the video](https://i.imgur.com/vKb2F1B.png)](https://youtu.be/vt5fpE0bzSY)
