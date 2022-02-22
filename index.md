@@ -1,6 +1,10 @@
-## Study Together ! :fireworks:
-***Owned by: Jenieva Ibarreta***
+# ENHYPEN ! :fireworks:
+###### ***Owned by: Jenieva Ibarreta***
 
-[![study with me - real time!](https://user-images.githubusercontent.com/99858112/155104637-a505110d-05b2-482f-9890-7889b23070c8.png)](https://youtu.be/5m4QcGCBoC0)
 
-[![Watch the video](https://i.imgur.com/vKb2F1B.png)](https://youtu.be/vt5fpE0bzSY)
+
+![ENHYPEN PICS on Twitter](https://user-images.githubusercontent.com/99858112/155109822-107216b2-e883-4834-b229-daffeeef367b.jpeg)
+### **ENHYPEN (엔하이픈)**
+
+###### - has 7 members namely: **HEESUNG, JAY, JAKE, SUNGHOON, SUNOO, JUNGWON, and NI-KI.**
+###### - came from I-LAND _(a survival show)_ under BE:LIFT Lab _(a joint label created by HYBE and CJ E&M Entertainment that was previously known as BigHit Entertainment.)_
